@@ -1,1 +1,0 @@
-# quantartist.massshooting.github.io
